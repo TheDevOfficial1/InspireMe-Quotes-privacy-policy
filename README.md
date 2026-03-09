@@ -1,0 +1,1 @@
+# InspireMe-Quotes-privacy-policy
